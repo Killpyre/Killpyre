@@ -1,7 +1,7 @@
 <div align="center">
 
 <p align="center">
-  <code>I want your things in my room,</code>
+  <code>Close the door and open up to me,</code>
 </p>
 
 ![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=710C04&style=plastic&abbreviated=true)
@@ -20,7 +20,7 @@
 <p align="center">$${\color{#C5C6BF} c+h \space always \space encouraged!}$$
 
 <p align="center">
-  <code>I miss you all of the time</code>
+  <code>Won't you ever open up to me?</code>
 </p>
 
 </div>
