@@ -29,6 +29,6 @@
   </a>
 </p>
 
-hiiii [my sweetheart](https://github.com/Theothebiggerbird) , [wukong](https://github.com/Ilohen) , [ze](https://github.com/G0ds-D1scip1e) , [mike](https://github.com/traummannn) , [mimi](https://github.com/nyanmare) , [uni](https://github.com/cola-flavor) , [michael](https://github.com/mortalpain) , [dust+horror](https://github.com/smokebunnies)  u guys all BEAT ME TOO KMUCH.
+hiiii [my sweetheart <33](https://github.com/Theothebiggerbird) , [my dad <3](https://github.com/Ilohen) , [hii big bro](https://github.com/G0ds-D1scip1e) , [hiii lil bro](https://github.com/traummannn) , [mimi](https://github.com/nyanmare) , [uni](https://github.com/cola-flavor) , [hiii son](https://github.com/mortalpain) , [hiii my evil offspring](https://github.com/fremi-net) , [my trio](https://github.com/smokebunnies)
 
 </div>
