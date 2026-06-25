@@ -29,4 +29,6 @@
   </a>
 </p>
 
+hiiii [my sweetheart](https://github.com/Theothebiggerbird) , [wukong](https://github.com/Ilohen) , [ze](https://github.com/G0ds-D1scip1e) , [mike](https://github.com/traummannn) , [mimi](https://github.com/nyanmare) , [uni](https://github.com/cola-flavor) , [michael](https://github.com/mortalpain) , [dust+horror](https://github.com/smokebunnies)  u guys all BEAT ME TOO KMUCH.
+
 </div>
