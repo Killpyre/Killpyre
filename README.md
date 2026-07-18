@@ -7,15 +7,15 @@
 ![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=710C04&style=plastic&abbreviated=true)
 
 
-![](https://files.catbox.moe/kn90uq.png)
+![](https://github.com/user-attachments/assets/ed68bb72-1d28-45dc-b943-66ac6d63bec0)
 
 <a href="https://lovebitez.atabook.org/">
-  <img src="https://files.catbox.moe/w316ji.png" width="140">
+  <img src="https://github.com/user-attachments/assets/419ec7ef-144a-459c-941e-d1684421661d" width="145">
 </a>
 
     
 <a href="https://rentry.co/smthnew">
-  <img src="https://files.catbox.moe/mmf0lg.png" width="140">
+  <img src="https://github.com/user-attachments/assets/60265c12-2679-44f5-ac7c-5a1f2f59ec66" width="140">
 </a>
 <p align="center">$${\color{#C5C6BF} c+h \space always \space encouraged!}$$
 
