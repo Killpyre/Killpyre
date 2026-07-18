@@ -1,7 +1,7 @@
 <div align="center">
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Syne+Mono&pause=1000&color=EAAFB1&center=true&vCenter=true&width=435&lines=The+stars+collide+when+you+and+i" alt="Typing SVG" /></a>
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Syne+Mono&pause=1000&color=f0c9b2&center=true&vCenter=true&width=435&lines=The+stars+collide+when+you+and+i" alt="Typing SVG" /></a>
 </p>
 
 ![views](https://komarev.com/ghpvc/?username=killer&label=LV&color=710C04&style=plastic&abbreviated=true)
@@ -17,10 +17,10 @@
 <a href="https://rentry.co/smthnew">
   <img src="https://github.com/user-attachments/assets/60265c12-2679-44f5-ac7c-5a1f2f59ec66" width="140">
 </a>
-<p align="center">$${\color{#C5C6BF} c+h \space always \space encouraged!}$$
+<p align="center">$${\color{#a1807b} c+h \space always \space encouraged!}$$
 
 <p align="center">
-  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Syne+Mono&pause=1000&color=EAAFB1&center=true&vCenter=true&width=435&lines=Intertwine+for+the+first+time" alt="Typing SVG" />
+  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Syne+Mono&pause=1000&color=97645f&center=true&vCenter=true&width=435&lines=Intertwine+for+the+first+time" alt="Typing SVG" />
   </a>
 
   <p align="center">
