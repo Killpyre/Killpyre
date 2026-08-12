@@ -29,6 +29,6 @@
   </a>
 </p>
 
-hiiii [my sweetheart <33](https://github.com/Theothebiggerbird) , [my dad <3](https://github.com/Ilohen) , [hii big bro](https://github.com/G0ds-D1scip1e) , [hii mimi](https://github.com/nyanmare) , [hii pix](https://github.com/veloury) , [hii uni](https://github.com/ger-ita) , [hiii my evil offspring](https://github.com/fremi-net) , [my trio (not on pt)](https://rentry.co/themtt) , [goofy](https://github.com/zour-readbyi)
+hiiii [my sweetheart <33](https://github.com/Theothebiggerbird) , [my dad <3](https://github.com/Ilohen) , [hii big bro](https://github.com/Int3rnetGh0st) + [yo roland:)](https://github.com/Hauntnet) , [hii mimi](https://github.com/nyanmare) , [hii pix](https://github.com/veloury) , [hii uni](https://github.com/ger-ita) , [hiii my evil offspring](https://github.com/fremi-net) , [my trio (not on pt)](https://rentry.co/themtt) , [goofy](https://github.com/zour-readbyi)
 
 </div>
