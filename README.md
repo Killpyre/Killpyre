@@ -14,7 +14,7 @@
 </a>
 
     
-<a href="https://rentry.co/smthnew">
+<a href="https://rentry.co/knlfepIay">
   <img src="https://github.com/user-attachments/assets/60265c12-2679-44f5-ac7c-5a1f2f59ec66" width="140">
 </a>
 <p align="center">$${\color{#a1807b} c+h \space always \space encouraged!}$$
